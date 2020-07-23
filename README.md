@@ -7,4 +7,4 @@ Love is faith, the belief in Jesus, that he is God and whosoever believe in Him 
 He came as his son through divinity as salvation to humanity 
 Love is why we're here, God is Love, for God so loved the world that he gave his only begotten son. 
 Love is the reason God created the universe, for out of love he created us with his own hands and breathe himself into us 
-Love is kindness, it is peace, it is in forgiveness and lasts forever
+Love is kindness, it is peace, it is in forgiveness and is eternal 
