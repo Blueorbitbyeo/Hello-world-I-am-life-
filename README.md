@@ -1,7 +1,7 @@
 # Hello-world-I-am-life-
 Life Is Discovering
 Life and living is love
-Love is not an emotion, though felt it transcends the ordinary, 
+Love is not an emotion, though felt it transcends the ordinary,
 Love is life, it is in creation, love is Mother Nature 
 Love is faith, the belief in Jesus, that he is God and whosoever believe in Him shall not be condemned but will have eternal life, a life of rest
 He came as his son through divinity as salvation to humanity 
